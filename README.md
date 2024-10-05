@@ -1,2 +1,2 @@
 # MeaningOfKafir
-Kafir Means Disbeliever InUnseen(NotHumanSpirit|Souls)
+Kafir Means Disbeliever InUnseen(NotHumanSpirits|Souls)
